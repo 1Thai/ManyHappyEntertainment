@@ -64,7 +64,7 @@ VII. Notice and revision
 4. Finally, you must be obligated to keep your account and password information confidential. In all cases, please take care to keep it safe.
 
 How to contact the company
-If you have any complaints or reports about the security of your network information, or if you have any questions, comments or suggestions about this Privacy Policy, your information, and any questions regarding this statement or our privacy practices, please contact us. Contact the coordinator. Contact information is.
+If you have any complaints or reports about the security of your network information, or if you have any questions, comments or suggestions about this Privacy Policy, your information, and any questions regarding this statement or our privacy practices, please contact us. Contact the coordinator. Contact information jopc80@163.com.
 
 
 隐私政策
@@ -131,5 +131,5 @@ If you have any complaints or reports about the security of your network informa
 4.最后，您必须对您的账号和密码信息负有保密义务。任何情况下，请小心 妥善保管。
 
 八、如何联系本公司
-如您有关于网络信息安全的投诉和举报，或您对本《隐私政策》、您的信息 的相关事宜有任何问题、意见或建议，以及有关本声明或本公司的隐私措施的问 题请与本公司的协调人联系。联系方式为。
+如您有关于网络信息安全的投诉和举报，或您对本《隐私政策》、您的信息 的相关事宜有任何问题、意见或建议，以及有关本声明或本公司的隐私措施的问 题请与本公司的协调人联系。联系方式为 jopc80@163.com。
 
